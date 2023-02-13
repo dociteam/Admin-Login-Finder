@@ -30,7 +30,7 @@ Find Admin Page Login.
 
 ### How-to-make-this-source Video on YouTube:
 
-https://youtu.be/S49vcrSsDjI
+https://youtu.be/Z7mGScM-JNc
 
 ### Our Discord Channel For Q&A:
 
