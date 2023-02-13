@@ -8,7 +8,7 @@
 
 ### ویدیوی آموزشی این اسکریپت
 
-https://youtu.be/S49vcrSsDjI
+https://youtu.be/Z7mGScM-JNc
 
 ### چنل دیسکورد ما برای سوالات و پیشنهادات شما
 
